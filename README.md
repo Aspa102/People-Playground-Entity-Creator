@@ -3,3 +3,4 @@
 --------------------------------
 
 Tutorial soon I guess
+Discord Invite: https://discord.gg/WNwrhxBsEn
